@@ -1,3 +1,4 @@
+-
 - What’s in it for me? Fight on the frontlines alongside a group of women who stood up to ISIS.
 	- The northern Syrian city of Kobani was surrounded. Battle-hardened fighters from the Islamic extremist group ISIS controlled three-quarters of the city; their tanks had advanced to Mishtanour, a strategic hilltop nearby.
 	- For days, militias fought ISIS on Mishtanour until they were commanded to withdraw. But some fighters didn’t obey the order. Among them was a woman named Arin Mirkan. Instead of pulling back, Mirkan decided to strap a grenade to her waist and charge an oncoming ISIS tank. When she reached the tank, she detonated the grenade, killing herself and all of the fighters inside.
